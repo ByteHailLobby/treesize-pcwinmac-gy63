@@ -1,4 +1,4 @@
-# 
+# Secure TreeSize extensions for Mac OS | Automatic TreeSize extensions for PC Windows. Featuring hardware acceleration and junk file cleaning — optimized for maximum performance on every platform.
 
 
 
